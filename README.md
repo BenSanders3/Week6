@@ -1,0 +1,3 @@
+# Week6
+I ended up managing to mess up after 8 hours of working on this and had to entirely restart...
+you know how your vision goes when you look at one of those swirly black and white optical illusion things? thats my vision but constantly at the moment
